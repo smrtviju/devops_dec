@@ -4,4 +4,4 @@ entha changes aaguthanu try pannalam
 
 correct ah work aaguma
 
-auto trigger aagiruchu ok
+auto trigger aagutha nu pappom
