@@ -4,4 +4,4 @@ entha changes aaguthanu try pannalam
 
 correct ah work aaguma
 
-this line is added confliict branch
+auto trigger ah check panna
